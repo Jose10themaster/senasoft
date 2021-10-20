@@ -1,0 +1,2 @@
+# senasoft
+competencia
